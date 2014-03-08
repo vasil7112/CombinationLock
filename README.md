@@ -1,4 +1,4 @@
-![Alt text](http://i688.photobucket.com/albums/vv246/vasil711/SleepyFeeling/SleepyFeeling_Logo_zpsdc9c8c84.png)
+![Alt text](http://i688.photobucket.com/albums/vv246/vasil711/CombinationLock/CombinationLock_zps48dc9a80.png~original)
 ==========
 Keep your valuable safe from other players by locking them with password protected locks!
 
